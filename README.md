@@ -18,7 +18,7 @@
 
 ╰┈➤Some of my hobbies are reading, being in nature, making bracelets and drawing
 
-╰┈➤I'm in the safe server in the Transformers Spot!
+╰┈➤I'm **MOSTLY** in the safe server in the Transformers Spot!
 
 °❀.ೃ࿔*Warning:
 
