@@ -8,7 +8,7 @@
 
 ⋆˚𝜗𝜚˚⋆ COMFORT SONG; ⋆˚࿔ YOU LOVE ME ⋆˚࿔ by Kimya Dawson
 
-࣪ ִֶָ☾. SONGS I LIKE; HAVE FAITH, HORATIO - Chase Petra「」SLEEP TALKING - Indigo De Souza「」NEVER LOVE AN ANCHOR - The Crane Wives「」DNA GUARANTEE - Kodi Rhianne「」REQUIEM - Dear Evan Hansen「」WAVING THROUGH A WINDOW - Dear Evan Hansen「」WOULD YOU FALL IN LOVE WITH ME AGAIN - Epic The Musical「」ODYSSEUS - Epic The Musical「」FORWARDS BECKON REBOUND - Adrianne Lenker「」HALF RETURN - Adrianne Lenker「」NOT A LOT, JUST FOREVER - Adrianne Lenker「」BLUE HAIR - TV Girl「」THINGS TO DO - Alex G 「」HOME - Cavetown
+࣪ ִֶָ☾. SONGS I LIKE; HAVE FAITH, HORATIO - Chase Petra「」SLEEP TALKING - Indigo De Souza「」NEVER LOVE AN ANCHOR - The Crane Wives「」DNA GUARANTEE - Kodi Rhianne「」REQUIEM - Dear Evan Hansen「」WAVING THROUGH A WINDOW - Dear Evan Hansen「」WOULD YOU FALL IN LOVE WITH ME AGAIN - Epic The Musical「」ODYSSEUS - Epic The Musical「」FORWARDS BECKON REBOUND - Adrianne Lenker「」HALF RETURN - Adrianne Lenker「」NOT A LOT, JUST FOREVER - Adrianne Lenker「」BLUE HAIR - TV Girl「」THINGS TO DO - Alex G 「」HOME - Cavetown「」ANTHEMS FOR A SEVENTEEN YEAR OLD GIRL - Broken Social Scene
 
 〃✦ ┆ I'm open to interactions, but most of the time I'm comfortable with my friends!
 
