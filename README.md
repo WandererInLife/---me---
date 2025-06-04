@@ -1,4 +1,9 @@
+[Updated on 4/06/2025]
+
 ૮꒰ > ༝ < ྀི꒱ა NICKNAMES; *BRIDGET* AND/OR *WANDERER*! [I prefer Bridget though!]
+
+
+˚⊱🪷⊰˚˚⊱🪷⊰˚ PRONOUNS; **SHE/THEY**
 
 ˚.🎀༘⋆ LIKES; TALKING WITH FRIENDS, MAKING OCS, HIDING BEHIND/C+H WITH FRIENDS, TOUCHCOMF *[Sometimes]*, DRAWING, LISTENING TO DOCUMENTARIES, LISTENING TO MUSIC, CALMING SONGS, SWIMMING, NATURE
 
@@ -8,7 +13,7 @@
 
 ⋆˚𝜗𝜚˚⋆ COMFORT SONG; ⋆˚࿔ YOU LOVE ME ⋆˚࿔ by Kimya Dawson
 
-࣪ ִֶָ☾. SONGS I LIKE; HAVE FAITH, HORATIO - Chase Petra「」SLEEP TALKING - Indigo De Souza「」NEVER LOVE AN ANCHOR - The Crane Wives「」DNA GUARANTEE - Kodi Rhianne「」REQUIEM - Dear Evan Hansen「」WAVING THROUGH A WINDOW - Dear Evan Hansen「」WOULD YOU FALL IN LOVE WITH ME AGAIN - Epic The Musical「」ODYSSEUS - Epic The Musical「」FORWARDS BECKON REBOUND - Adrianne Lenker「」HALF RETURN - Adrianne Lenker「」NOT A LOT, JUST FOREVER - Adrianne Lenker「」BLUE HAIR - TV Girl「」THINGS TO DO - Alex G 「」HOME - Cavetown「」ANTHEMS FOR A SEVENTEEN YEAR OLD GIRL - Broken Social Scene
+࣪ ִֶָ☾. SONGS I LIKE; HAVE FAITH, HORATIO - Chase Petra「」SLEEP TALKING - Indigo De Souza「」NEVER LOVE AN ANCHOR - The Crane Wives「」DNA GUARANTEE - Kodi Rhianne「」REQUIEM - Dear Evan Hansen「」WAVING THROUGH A WINDOW - Dear Evan Hansen「」WOULD YOU FALL IN LOVE WITH ME AGAIN - Epic The Musical「」ODYSSEUS - Epic The Musical「」FORWARDS BECKON REBOUND - Adrianne Lenker「」HALF RETURN - Adrianne Lenker「」NOT A LOT, JUST FOREVER - Adrianne Lenker「」BLUE HAIR - TV Girl「」THINGS TO DO - Alex G 「」HOME - Cavetown「」METEOR SHOWER - Cavetown「」ANTHEMS FOR A SEVENTEEN YEAR OLD GIRL - Broken Social Scene
 
 〃✦ ┆ I'm open to interactions, but most of the time I'm comfortable with my friends!
 
